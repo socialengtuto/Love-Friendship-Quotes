@@ -1,0 +1,2 @@
+# Love-Friendship-Quotes
+It is not always very easy to express love, no matter how intense your love is.  So, what do you do when you are stuck between – whether I should say it all and hold back? You must communicate your feelings without worrying about the response.  If you are hesitant about verbalizing your feelings, you must text him/her a beautiful love quote followed by three magical words and stay calm.
